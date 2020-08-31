@@ -12,3 +12,6 @@ Buenas noches chavos chiquitos!
 
 tenemos que tener buenas manos para esto, vamos bien!
 Asi que mañana tenemos que estar muy bien preparados como chicharon con tinga!
+
+Buenas tardes tengan todos!
+
