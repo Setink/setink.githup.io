@@ -15,3 +15,12 @@ Asi que mañana tenemos que estar muy bien preparados como chicharon con tinga!
 
 Buenas tardes tengan todos!
 
+# Naturaleza es vida
+
+Lo natural es vital!
+
+- Plantas 
+- Agua 
+- Tierra 
+- Sol
+
